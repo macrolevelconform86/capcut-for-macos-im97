@@ -1,4 +1,4 @@
-# 
+# premium CapCut for macOS Effect | batch-rendering + keyframe-animation offers the most advanced CapCut for macOS effect, with batch-rendering and keyframe-animation. Ideal for
 
 
 
